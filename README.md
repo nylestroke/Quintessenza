@@ -1,3 +1,3 @@
 ## Quintessenza
 
-TODO
+Coming soon..
